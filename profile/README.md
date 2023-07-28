@@ -1,4 +1,7 @@
 ![CordX](https://cdn.discordapp.com/attachments/1132817220611866745/1134402278003056650/1500x500.jpg)
+
+---
+
 Simplifying the way you share your online media, files and links with your friends, family and loved ones.
 
 ---
