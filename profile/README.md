@@ -1,4 +1,4 @@
-![CordX](https://cdn.discordapp.com/attachments/1132817220611866745/1134402278003056650/1500x500.jpg)
+![CordX](https://cdn.discordapp.com/attachments/1132817220611866745/1139781969065025696/CordX.png)
 
 ---
 
