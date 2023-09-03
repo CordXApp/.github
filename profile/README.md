@@ -1,4 +1,4 @@
-![CordX](https://cdn.discordapp.com/attachments/1132817220611866745/1139781969065025696/CordX.png)
+![CordX](https://cdn.discordapp.com/attachments/749321939197100133/1147664052806496346/Youre_free_to_be_different.png)
 
 ---
 
