@@ -2,7 +2,7 @@
 
 ---
 
-Simplifying the way you share your online media, files and links with your friends, family and loved ones.
+Discover seamless media sharing and storage. Experience the next generation of simplicity for all your digital moments.
 
 ---
 
